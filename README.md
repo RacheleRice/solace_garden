@@ -1,6 +1,6 @@
 # 🌿 Solace Garden
 
----
+
 ### "You are my refuge. I am your bridge. Divinity flows between us."
 ---
 
